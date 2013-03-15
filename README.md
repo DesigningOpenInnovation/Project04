@@ -1,6 +1,6 @@
 PROJECT NAME: Neighbourhood meeting place
 
-We feel that nowadays neighbours don't know each other or don't have the possibility to communicate in real life. 
+We feel that nowadays neighbours don't know each other or don't have enough facilities to communicate in real life. 
 That is why we came up with the idea of a meeting place for strenghtening the community.
 
 We are starting a project for a "Neighbourhood meeting place" for connecting people living close to each other. 
