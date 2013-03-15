@@ -1,7 +1,9 @@
-We feel that nowadays neighbours don't know each other or don't have the possibility to communicate in real life. We would hope to strenghten the communities.
+We feel that nowadays neighbours don't know each other or don't have the possibility to communicate in real life. 
+That is why we came up with the idea of a meeting place for strenghtening the community.
 
-We are starting a project for a "Neighbourhood meeting place" for connecting people in suburbs and above. 
-Our service will be funded by the government or the local municipalities but run by the community itself. The community selects a board for the service yearly who will be in charge of taking care of all matters from housekeeping to communication towards the community and other parties. 
+We are starting a project for a "Neighbourhood meeting place" for connecting people living close to each other. 
+Our service will be funded by the government or the local municipalities but run by the community itself. 
+The community selects a board for the service yearly who will be in charge of taking care of all matters from housekeeping to communication towards the community and other parties. 
 This is the mutual place for neighbours to meet each other, arrange parties, happenings, courses etc. and to have a possibility to rent it for private events.
 
 Group members: Katri Ollila, Tatyana Chuzhanova, Annu Jokinen, Erika Ahlberg
